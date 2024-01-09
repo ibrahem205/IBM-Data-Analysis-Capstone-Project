@@ -10,7 +10,7 @@ Social Media X(prev Twitter) : Ibrahim_A_Abbas
 
 LinkedIn (https://www.linkedin.com/in/ibrahim-abbas-108837246?utm_source=share&utm_campaign=share_via&utm_content=profile&utm_medium=android_app)
 
-Author Created by Ibrahim Abbas (https://github.com/ibrahem205)
+Created by Ibrahim Abbas (https://github.com/ibrahem205)
 
 You can reach me at:
 
